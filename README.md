@@ -1,3 +1,3 @@
 # Talk
 
-Invite GT for a meeting to talk
+Invite Y for a meeting to talk
