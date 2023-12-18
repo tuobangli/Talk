@@ -1,3 +1,3 @@
 # Talk
 
-don't talk 21
+Invite Y A for a meeting to talk.
