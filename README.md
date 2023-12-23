@@ -1,3 +1,3 @@
 # 
 
-back to HK tomorrow.
+go to Kuala Lumpur tomorrow.
