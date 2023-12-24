@@ -1,3 +1,2 @@
 # 
-
-back to HK on Wednesday.
+go to Saipan as soon as possible.
