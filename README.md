@@ -1,5 +1,3 @@
 # 
 
-go to Kuala Lumpur Monday,
-
-and then back to HK on Wednesday.
+back to HK on Wednesday.
