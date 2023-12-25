@@ -1,3 +1,3 @@
 # 
-go to Saipan as soon as possible.
-4
+BLS Belarus Visa Application Centre
+2
