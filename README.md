@@ -1,2 +1,1 @@
-Fedex to Raulet.
-
+waiting reply after you received the letter.
