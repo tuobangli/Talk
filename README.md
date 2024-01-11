@@ -1,3 +1,3 @@
-waiting reply after you received the letter.
+waiting reply current is enough.
 
 
