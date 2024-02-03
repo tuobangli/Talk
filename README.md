@@ -1,4 +1,4 @@
-Change the introduction, I studied in GT.
+Change the introduction, I graduated from GT.
 
 4
 
