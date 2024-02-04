@@ -1,4 +1,3 @@
-Change the introduction, I graduated from GT and going to Berkeley soon.
-
+Apply Berkeley Summer 2024 internship 
 4
 
