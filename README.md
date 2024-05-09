@@ -1,3 +1,3 @@
-Resent email to Raulet
+sent email to Michael Yartsev
 
 
