@@ -1,3 +1,3 @@
-sent email to Michael Yartsev
+sent email to Randy Schekman
 
 
