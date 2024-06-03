@@ -1,3 +1,3 @@
-sent email to Randy Schekman
+resent email to Randy Schekman, book invitation
 
 
