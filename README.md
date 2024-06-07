@@ -1,5 +1,3 @@
- CHEM 3AL
-Organic Chemistry Laboratory
 
 CHEM 1AL: General Chemistry Laboratory
 Open
