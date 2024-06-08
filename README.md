@@ -1,2 +1,4 @@
 CHEM 3BL: Organic Chemistry Laboratory
-■ Leo Chen
+■ Peter Marsden
+
+Sent email to ■ Peter Marsden
