@@ -1,2 +1,2 @@
 CHEM 3BL: Organic Chemistry Laboratory
-changed to another course
+send an email for introduction
