@@ -1,2 +1,2 @@
 CHEM 3BL: Organic Chemistry Laboratory
-pay the tuition
+changed to another course
